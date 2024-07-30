@@ -1,6 +1,7 @@
-# Bem vindo ao meu Perfil
+# Bem vindo ao meu Perfil 🎸
 
 Eu sou o professor Ed
 
-![image](https://github.com/user-attachments/assets/ca16345c-523f-40a3-98fe-6cc5142e8628)
+![image](https://media1.tenor.com/m/_Cel02xMJ18AAAAC/beavis-and-butthead-headbang.gif)
+
 
